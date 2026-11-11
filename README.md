@@ -3,4 +3,4 @@
  ㅤㅤㅤㅤㅤㅤㅤmariogotzefanboy
    ㅤㅤㅤroblox(age group is 13-15) @doctorisaacx , add me if we're moots/friends
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/lzemsg.gif)
+ㅤㅤㅤㅤㅤ[pronoun](https://pronouns.cc/@doctorisaac) [carrd](https://doctororor.carrd.co)
